@@ -2,7 +2,7 @@
 
 When I'm not asleep I dream. 
 
-🤙 Reach me on [LinkedIn](https://www.linkedin.com/in/dennis-gankin-627005177/)
+☎️ Reach me on [LinkedIn](https://www.linkedin.com/in/dennis-gankin-627005177/)
 ___
 
 ![](https://media.giphy.com/media/4pT1O8bRCWnNm/giphy.gif)
