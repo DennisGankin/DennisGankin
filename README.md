@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-When I'm not sleeping I dream. 
+When I'm not asleep I dream. 
 
 ___
 
