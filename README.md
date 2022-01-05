@@ -2,7 +2,7 @@
 
  I'm a CS student at TUM.
 
-☎️ Reach me on [LinkedIn](https://www.linkedin.com/in/dennis-gankin-627005177/)
+☎️ Reach me on [LinkedIn](https://www.linkedin.com/in/dennis-gankin-627005177/)   
 :pencil: Check out my [CV](https://home.in.tum.de/~gankin/)
 ___
 
