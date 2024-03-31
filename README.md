@@ -3,7 +3,7 @@
  I'm a PhD student at ETH.
 
 ☎️ Reach me on [LinkedIn](https://www.linkedin.com/in/dennis-gankin-627005177/)   
-:pencil: Check out my [CV](https://home.in.tum.de/~gankin/)
+:pencil: Check out my [CV](https://n.ethz.ch/~dgankin/)
 ___
 
 
